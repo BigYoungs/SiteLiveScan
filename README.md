@@ -97,4 +97,4 @@ SiteLiveScan 仅供学习交流使用，禁止用于非法用途，否则后果�
 
 ## 下载地址&获取最新版
 
-[https://afdian.net/a/bigyoung?tab=shop](https://afdian.net/a/bigyoung?tab=shop) 页面搜“SiteLiveScan”
+[https://ifdian.net/a/bigyoung?tab=shop](https://ifdian.net/a/bigyoung?tab=shop) 页面搜“SiteLiveScan”
