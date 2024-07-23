@@ -97,4 +97,6 @@ SiteLiveScan 仅供学习交流使用，禁止用于非法用途，否则后果�
 
 ## 下载地址&获取最新版
 
-[https://ifdian.net/a/bigyoung?tab=shop](https://ifdian.net/a/bigyoung?tab=shop) 页面搜“SiteLiveScan”
+**主要链接:**[https://ifdian.net/a/bigyoung?tab=shop](https://ifdian.net/a/bigyoung?tab=shop) 页面搜“SiteLiveScan”
+
+**备用链接：** [https://mbd.pub/o/bread/mbd-ZpiblJdy](https://mbd.pub/o/bread/mbd-ZpiblJdy)
